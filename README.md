@@ -1,7 +1,4 @@
 - 👋 Hi, I’m @MaliGH1
-- 👀 I’m interested in Perempuan
-- 🌱 I’m currently learning Pentingnya Hidup
-- 💞️ I’m looking to collaborate on Hidup
 - 📫 How to reach me IG=mrizkyfm
 
 <!---
